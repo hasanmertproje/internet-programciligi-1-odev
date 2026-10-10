@@ -1,1 +1,0 @@
-# internet-programciligi-1-odev
